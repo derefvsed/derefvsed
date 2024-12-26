@@ -3,8 +3,7 @@
 - 🌱 I’m currently learning ...465
 - 💞️ I’m looking to collaborate on ...wq
 - 📫 How to reach me ...4587
-- 😄 Pronouns: ...sfd262
-- ⚡ Fun fact: ...546sdf2q1164
+- 😄 Pronouns: ...sfd2626838
 fdd54448
 <!---uoui132qw4
 derefvsed/derefvsed is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.dfh
