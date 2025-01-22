@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @derefvsed
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...465
+- 🌱 I’m currently learning ...46585
 - 💞️ I’m looking to collaborate on ...wq56
 - 📫 How to reach me ...458784747
 - 😄 Pronouns: ...sfd2626838
