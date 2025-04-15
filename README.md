@@ -1,8 +1,8 @@
-nytytnxcv5000fgb- 👋 Hi, I’m @derefvsedas
+hnnytytnxcv5000fgb- 👋 Hi, I’m @derefvsedas
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...46585k,k,ds
 - 💞️ I’m looking to collaborate on ...wq561452345447747
-- 📫 How to reach me ...458784747rterg44885562526dcetrhrthnb4114fvdfdvasdas
+- 📫 How to reach me ...458784747rterg44885562526dcetrhrthnb4114fvdfdvasdashn
 - 😄 Pronouns: ...sfd262683862cxvcvxzxc84xcvxcghj62bvvhhfg
 fdd54448dasadscxvdsfxzzz584526vxddsd62
 <!---uoui132qw4gjlkjilxbz45sdfxcv6xcvcfgh
