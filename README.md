@@ -1,6 +1,6 @@
 hnnytytnxcv5000fgb- 👋 Hi, I’m @derefvsedas
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...46585k,k,ds
+- 🌱 I’m currently learning ...46585k,k,dsjlk
 - 💞️ I’m looking to collaborate on ...wq561452345447747vbnbvb
 - 📫 How to reach me ...458784747rterg44885562526dcetrhrthnb4114fvdfdvasdashngyjhggffgg
 - 😄 Pronouns: ...sfd262683862cxvcvxzxc84xcvxcghj62bvvhhfgvbcv
